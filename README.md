@@ -1,6 +1,6 @@
 - hi im polygloid
 - worlds best progaymer
-- straight
+- sexuality: homophobic (gay) (i like owmen)
 - sex: ist
 
 <!---
